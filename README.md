@@ -8,4 +8,5 @@
 
 ![Screenshot 2024-07-01 231124](https://github.com/JmLastrollo/blackclovermoviefandom/assets/174353232/ee6eecfc-2ca4-4fd8-8f6e-dc0236500a54)
 
-![Uploading Screenshot 2024-07-01 231150.png…]()
+![Screenshot 2024-07-01 231150](https://github.com/JmLastrollo/blackclovermoviefandom/assets/174353232/c6592120-cd21-4b89-a090-5b1c622a8593)
+
